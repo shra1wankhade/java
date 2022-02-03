@@ -3,6 +3,3 @@
 ths is the first file in this respo.
 
 ##dfkjsdnfjsud
-dndfjknkjdfngunafiulgdfunviuldfdnvkjldnfvkjndfkjnvjdfnvkjnjvnjdfnkjjnfkjnjsdf
-dsfsadfasdf
-dsfniuasnunsafgfurgurjsjfiojsidjfjndsajfniuasfjiousdjf
